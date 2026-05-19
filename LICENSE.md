@@ -1,4 +1,4 @@
-# 
+# smart Advanced SystemCare para PC plugins é o melhor Advanced SystemCare para PC plugins com atualizacoes automaticas e criacao de cercas. Seguro, confiável e otimizado para
 
 
 
